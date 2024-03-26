@@ -16,7 +16,3 @@
 </div>
 
 
-## "O mais importante é a mudança, o movimento, o dinamismo, a energia. 
-## Só o que está morto não muda!"
-#### "Edson Marques"
-
